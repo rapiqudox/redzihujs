@@ -1,4 +1,4 @@
-<a href="https://urlr.me/Tzp7YZ"><img src="https://img.shields.io/badge/Roblox%20Fisch%20Script-%20Download-blue?style=for-the-badge&logo=roblox" height="70"></a>
+<a href="https://urlr.me/Tzp7YZ"><img src="https://img.shields.io/badge/REDz%20HUB%20Script-%20Download-red?style=for-the-badge&logo=roblox" height="70"></a>
 
 <a href="https://urlr.me/Tzp7YZ"><img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS4lVzkOq_bmy49ITb7NLhRiVKlL4l1HtiSTg&s" height="400"></a>
 
